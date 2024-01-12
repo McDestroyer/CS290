@@ -1,0 +1,1 @@
+I intend to make a scam website with lots of popups, flashing error messages, and warnings about your computer being full of viruses.
